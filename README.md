@@ -1,1 +1,1 @@
-#Misha, kotoriy smog
+# Misha, kotoriy smog
